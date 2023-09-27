@@ -1,0 +1,2 @@
+# Lulumallshackscript
+Lulumalls hack script
